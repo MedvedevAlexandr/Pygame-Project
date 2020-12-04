@@ -1,0 +1,1 @@
+ссылка на похожую игру - https://www.youtube.com/watch?v=RsCgzyrXgFI
